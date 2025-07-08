@@ -10,6 +10,6 @@
 	
 选择日本AV免费资源时，安全性、高清画质和更新频率是关键。选择有良好口碑的平台可以避免恶意广告和病毒，确保设备安全。高清画质和流畅播放提升观影体验，及时更新保证你观看到最新影片。分类和筛选功能让你快速找到感兴趣的内容，同时确保平台提供隐私保护措施，保障个人数据安全。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/te20250708/te04 ）</span>
 
 
